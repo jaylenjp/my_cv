@@ -1,2 +1,2 @@
 # My_CV
-Use links above to download.
+Use link above to download.
